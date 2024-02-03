@@ -1,5 +1,5 @@
 ## We are Team-2K 👋
-![2k_team_intro-2](https://github.com/2K-AI/About_Us/assets/84755366/b6c619dc-bf36-4dad-b905-5c77823437b7)
+![2k_team_intro-3](https://github.com/2K-AI/.github/assets/84755366/74ec07d0-61ca-469a-b3c3-902a33e120f7)
 
 <!--
 
